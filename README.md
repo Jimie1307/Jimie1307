@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Jimie1307
-- 👀 I’m interested in: a lot of stuff,, cannot pin-point :)
+- 👀 I’m interested in: Gaming, dancing, and just overall...⭐<i>vibing peacefully</i>⭐
 - 🌱 I’m currently learning: Software Engineering in Sabah
-- 💞️ I’m looking to collaborate on: nothing <3 because i am still studying
+- 💞️ I’m looking to collaborate on: anything...? Will need to see 
 - 📫 How to reach me : wwannorazlin@gmail.com
 
 <!---
